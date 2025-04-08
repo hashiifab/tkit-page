@@ -1,65 +1,65 @@
 # 🏫 TK Islam Terpadu Muthmainnah
 
-**Pendidikan Anak Usia Dini Berbasis Nilai-Nilai Islami**
+**Early Childhood Education with Islamic Values**
 
 ---
 
-## 📖 Tentang Kami
+## 📖 About Us
 
-**TK Islam Terpadu Muthmainnah** adalah lembaga pendidikan anak usia dini yang berlokasi di Bandung, Jawa Barat. Kami berkomitmen untuk memberikan pendidikan yang mengintegrasikan nilai-nilai Islami dalam proses pembelajaran, guna membentuk karakter anak yang berakhlak mulia dan cerdas.
-
----
-
-## 🎯 Misi Kami
-
-- Menyediakan pendidikan terbaik yang berlandaskan nilai-nilai Islami.
-- Mengembangkan karakter dan akhlak mulia pada peserta didik.
-- Mempersiapkan generasi muda yang cerdas, kreatif, dan peduli terhadap sesama.
+**TK Islam Terpadu Muthmainnah** is an Islamic kindergarten located in Bandung, West Java. We are dedicated to providing early childhood education that integrates Islamic values, aiming to shape children with noble character and strong academic foundations.
 
 ---
 
-## 📚 Program Pendidikan
+## 🎯 Our Mission
 
-1. Pendidikan Karakter  
-2. Pengajaran Al-Qur'an  
-3. Kegiatan Ekstrakurikuler  
-4. Pembelajaran Akademik  
-5. Pengembangan Kepemimpinan  
-6. Pengembangan Sosial  
+- Deliver quality education rooted in Islamic teachings.
+- Develop strong character and moral values in children.
+- Prepare a young generation that is intelligent, creative, and caring.
 
 ---
 
-## 🏆 Pencapaian
+## 📚 Educational Programs
 
-- 100+ Siswa  
-- 20+ Guru & Staf  
-- 100+ Kegiatan  
-- 50+ Penghargaan  
+1. Character Education  
+2. Qur'an Learning  
+3. Extracurricular Activities  
+4. Academic Development  
+5. Leadership Skills  
+6. Social Development  
 
 ---
 
-## 📍 Lokasi
+## 🏆 Achievements
+
+- 100+ Students  
+- 20+ Teachers & Staff  
+- 100+ Activities  
+- 50+ Awards  
+
+---
+
+## 📍 Location
 
 Kompleks Cibaduyut Permai  
 Jl. Prambanan B3  
 Bandung 40239  
-Jawa Barat, Indonesia  
+West Java, Indonesia  
 
 ---
 
-## 📞 Kontak
+## 📞 Contact
 
 - Email: muthmainnahtkit@gmail.com  
-- Telepon: 022-5403115  
-- WhatsApp: 0896-3395-5191 (Siti)  
+- Phone: 022-5403115  
+- WhatsApp: +62 896-3395-5191 (Siti)  
 
 ---
 
-## 🌐 Media Sosial
+## 🌐 Social Media
 
-- Instagram: @tkit_muthmainnah  
+- Instagram: [@tkit_muthmainnah](https://www.instagram.com/tkit_muthmainnah)  
 - Facebook: TKIT Muthmainnah Cibaduyut Bandung  
 
 ---
 
-> *TK Islam Terpadu Muthmainnah – Membentuk Generasi Berakhlak Mulia dan Cerdas*
+> *TK Islam Terpadu Muthmainnah – Nurturing Children with Islamic Values and Bright Futures*
